@@ -2,7 +2,7 @@
 
 ### 🌟 Experience
 - **Yagom iOS Career Starter 6th** (2022-04-11 ~ 2022-10-07)
-- **Yagom Academy Supporter**  (2022-10-17 ~ ing)
+- **Yagom Academy Supporter**  (2022-10-17 ~ 2023-02-10)
 
 <br>
 
